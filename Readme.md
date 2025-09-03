@@ -33,7 +33,7 @@
 ### 📫 Connect with Me
 
 - 📧 Email: [ujwaldimri223@email.com](mailto:ujwaldimri@email.com)
-- 🔗 LinkedIn: [linkedin.com/in/ujwal-dimri](https://www.linkedin.com/in/ujwal-dimri/)
+- 🔗 LinkedIn: [linkedin.com/in/ujwal-dimri](https://www.linkedin.com/in/ujwal-dimri-82400729a/)
 
 ---
 
